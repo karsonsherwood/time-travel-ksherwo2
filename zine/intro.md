@@ -1,1 +1,1 @@
-Welcome to Karsons time machine zine!
+Author thinks time travel is fun!
