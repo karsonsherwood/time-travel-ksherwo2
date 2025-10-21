@@ -1,1 +1,1 @@
-Welcome to Karsons time machine zine!
+Editor suggests time travel is amazing!
